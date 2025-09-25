@@ -1,0 +1,1 @@
+# jwop-scripture-copyright-footer
